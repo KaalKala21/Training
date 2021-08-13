@@ -1,3 +1,3 @@
 # Training
 github training
-https://www.adzbux.com/quick.php?u=59287
+https://mediacpm.pl/v.php?user=25437
