@@ -1,3 +1,3 @@
 # Training
 github training
-https://mediacpm.pl/v.php?user=25437
+https://www.rotate4all.com/ptp/promote-223657
